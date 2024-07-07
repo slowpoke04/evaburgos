@@ -17,5 +17,6 @@ Feel free to reach out to me about biomedical engineering or any exciting projec
 📫 **Contact Me:**
 - Email: natalie.e.burgos@gmail.com
 - LinkedIn: (https://www.linkedin.com/in/eva-n-burgos-858956181/)
+
 ⚡ **Fun Fact:**
 I love exploring the outdoors and experimenting with new sustainable gardening techniques in my free time.
